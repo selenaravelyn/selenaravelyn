@@ -1,10 +1,3 @@
-# ✨ Selena Ravelyn
-
-> "Entre linhas e silêncios, não busco ser reconhecida, mas sentida."  
-> — *Selena Ravelyn*
-
----
-
 ## 🌿 Quem é Selena Ravelyn?
 
 Selena Ravelyn é uma identidade literária, um espaço de expressão onde a verdadeira autora se recolhe para dar voz às histórias.  
@@ -22,13 +15,6 @@ A escrita de Selena é guiada por:
 
 ---
 
-## 🌸 A Persona  
-
-Selena não é apenas um pseudônimo, mas uma forma de liberdade criativa.  
-Um véu que preserva a intimidade e, ao mesmo tempo, abre espaço para que ideias ganhem vida sem amarras.  
-
----
-
 ## 🌐 Onde Encontrar
 
 - **Instagram:** `@selenaravelyn`  
@@ -38,9 +24,7 @@ Um véu que preserva a intimidade e, ao mesmo tempo, abre espaço para que ideia
 
 ---
 
-<aside>
-🌸    
-
+<aside>   
 > **Selena Ravelyn**  
 > Escritora | Ficção, Romance & Fantasia  
 >   
