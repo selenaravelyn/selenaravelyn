@@ -25,8 +25,10 @@ A escrita de Selena é guiada por:
 ---
 
 <aside>   
+  
 > **Selena Ravelyn**  
 > Escritora | Ficção, Romance & Fantasia  
 >   
-> ✉️ E-mail: `selenaravelyn@gmail.com`  
+> ✉️ E-mail: `selenaravelyn@gmail.com`
+> 
 </aside>
