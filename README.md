@@ -39,7 +39,8 @@ Um véu que preserva a intimidade e, ao mesmo tempo, abre espaço para que ideia
 ---
 
 <aside>
-🌸  
+🌸    
+
 > **Selena Ravelyn**  
 > Escritora | Ficção, Romance & Fantasia  
 >   
