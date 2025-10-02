@@ -29,10 +29,19 @@ Um véu que preserva a intimidade e, ao mesmo tempo, abre espaço para que ideia
 
 ---
 
-## 🌍 Neste Espaço  
+## 🌐 Onde Encontrar
 
-Este perfil é um convite à leitura e à curiosidade.  
-Aqui não se trata de biografia, mas de presença — uma presença feita de palavras.  
+- **Instagram:** `@selenaravelyn`  
+- **Wattpad / Inkspired:** `SelenaRavelyn`  
+- **X (Twitter):** `@selenaravelyn`  
+- **Threads:** `@selenaravelyn`  
 
-Se chegou até aqui, talvez já esteja caminhando ao lado de Selena Ravelyn.  
+---
 
+<aside>
+🌸  
+> **Selena Ravelyn**  
+> Escritora | Ficção, Romance & Fantasia  
+>   
+> ✉️ E-mail: `selenaravelyn@gmail.com`  
+</aside>
